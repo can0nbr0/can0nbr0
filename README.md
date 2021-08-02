@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @can0nbr0
+- 👀 I’m interested in yur bitch
+- 🌱 I’m currently learning life
+- 💞️ I’m looking to collaborate on not much
+- 📫 How to reach me ...@picksofnick
